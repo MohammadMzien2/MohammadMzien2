@@ -3,7 +3,7 @@
 - 👀 I’m interested in gym
 - 🌱 I’m currently learning Webbutvekling 
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me gmail: Mohammad Mzien
+- 📫 How to reach me gmail: Mohammadlu281@gmail.com
 - My phone number: 0736342581
 
 <!---
